@@ -1,1 +1,1 @@
-![gay people](elisop aesdrew.png)
+![gay people](https://imgur.com/a/bRthzQH)
